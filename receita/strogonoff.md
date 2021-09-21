@@ -14,8 +14,7 @@
 - xícaras (chá) de cogumelos Paris cortados em fatias grossas (pode ser substituído por champignon) 
 - xícara (chá) de molho de tomates 
 - latas de creme de leite 
-
-1. ​
+- ​
 
 ## Modo de Preparo
 
