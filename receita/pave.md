@@ -1,8 +1,8 @@
-# Strogonoff de frango
+# Pave
 
 
 
-### Ingredientes:
+###Ingredientes:
 
 - 1 colher (sopa) de Margarina Claybom 
 - Peitos de Frango Perdigão cortado em cubos médios 
@@ -22,3 +22,4 @@
 - Etapa opcional: coloque o conhaque em uma concha de metal e coloque fogo na bebida; com cuidado, despeje o conteúdo da concha com as chamas na panela; aguarde até que o fogo apague (este processo é chamado de “flambar”);  
 - Adicione o molho inglês, a mostarda, os cogumelos e o molho de tomates e deixe cozinhando por 2-3 minutos;  
 - Acrescente o creme de leite e continue cozinhando até que o strogonoff fique quente, mas não deixe o creme de leite ferver (levantar bolinhas), pois neste caso, ele pode talhar, conferindo um aspecto estranho ao creme.  
+
